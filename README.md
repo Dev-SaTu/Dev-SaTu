@@ -4,8 +4,8 @@
 열정이 식지 않도록 구경해주세요.  
 
 
-[https://foch.pro/  ](https://foch.pro/)  
-[https://](https://upboard-43be3.web.app/)https://upboard-43be3.web.app/  
+[포치 바로가기](https://foch.pro/)  
+[업보드 바로가기](https://upboard-43be3.web.app/)
 
 
 ### Hi there 👋
