@@ -5,7 +5,5 @@
 
 
 [포치 바로가기](https://foch.pro/)  
-[업보드 바로가기](https://upboard-43be3.web.app/)
-
 
 ### Hi there 👋
